@@ -1,2 +1,0 @@
-# newgardenhotel
-Resturant
